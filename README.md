@@ -32,7 +32,7 @@ A **inteligência artificial** vem crescendo rapidamente. O ChatGPT-4, por exemp
 
 ## 5. 🌌 Alguém que Eu Admiro
 
-Admiro muito o **Serjão Sacani**, um geólogo e influenciador que fala sobre astronomia. O canal dele é minha fonte de informações favoritas sobre o universo. Ele explica conteúdos complexos de forma **simples e dinâmica**, sendo um ótimo comunicador. Graças a ele, minha paixão por astronomia só aumentou.
+Admiro muito o **Serjo Sacani**, um geólogo e influenciador que fala sobre astronomia. O canal dele é minha fonte de informações favoritas sobre o universo. Ele explica conteúdos complexos de forma **simples e dinâmica**, sendo um ótimo comunicador. Graças a ele, minha paixão por astronomia só aumentou.
 
 ---
 
